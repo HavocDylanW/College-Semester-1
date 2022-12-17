@@ -1,1 +1,1 @@
-# College-Semester-1
+# College Semester 1
